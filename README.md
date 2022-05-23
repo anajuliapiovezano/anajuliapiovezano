@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @anajuliapiovezano
+- 👀 I’m interested in go home
+- 🌱 I’m currently learning how to do games
+- 📫 ig: @_juli4sxl
+- I am 16y old 
